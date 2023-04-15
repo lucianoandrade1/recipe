@@ -1,3 +1,4 @@
+Let's begin!
 Ingredients
 1 pound dry black beans (soaked overnight)*
 1 tablespoon olive oil
@@ -14,3 +15,4 @@ Ingredients
 water
 white rice (for serving)
 farofa (for serving)
+Enjoy my recipe!
